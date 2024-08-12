@@ -11,7 +11,7 @@ I am actively seeking collaborative projects where I can apply and enhance my sk
 
 ## 📫 How to reach me ...
 - Email: [patilchandrashekhar1023@gmail.com](https://patilchandrashekhar1023@gmail.com)
-- LinkedIn: [https://www.linkedin.com/in/chandrashekhar-patil-691724250](https://www.linkedin.com/in/chandrashekhar-patil-691724250)]
+- LinkedIn: [https://www.linkedin.com/in/chandrashekhar-patil-691724250](https://www.linkedin.com/in/chandrashekhar-patil-691724250)
 - Twitter: [https://x.com/Chandu_Patil01?t=125FzG9SbPfa5m7SxlA3lg&s=08](https://x.com/Chandu_Patil01?t=125FzG9SbPfa5m7SxlA3lg&s=08)
 
 ## 😄 Pronouns:
